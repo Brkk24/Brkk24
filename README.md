@@ -9,4 +9,5 @@ Meu nome é Brunno Yan
   ### você entrar em contato comigo📫
 
   brunoyandossantos@gmail.com
-  ![](https://images.app.goo.gl/F75aCzpH9SAViT3z8)
+  
+  ![](http://bkln-nine-nine.tumblr.com/http://bkln-nine-nine.tumblr.com/http://bkln-nine-nine.tumblr.com/http://bkln-nine-nine.tumblr.com/)
