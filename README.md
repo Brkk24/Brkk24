@@ -11,4 +11,4 @@ Meu nome é Brunno Yan
   brunoyandossantos@gmail.com
   
 
-![bob-anakshie](https://github.com/Brkk24/Brkk24/assets/172087663/dd80cb9f-dcdf-4c20-abce-60c8e7f0bc42)
+![bob-anakshie](https://github.com/Brkk24/Brkk24/assets/172087663/9711c9d0-375b-4e46-b7c0-b081486fcd52)
