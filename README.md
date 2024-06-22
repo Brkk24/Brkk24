@@ -10,4 +10,4 @@ Meu nome é Brunno Yan
 
   brunoyandossantos@gmail.com
   
-  ![](http://bkln-nine-nine.tumblr.com/http://bkln-nine-nine.tumblr.com/http://bkln-nine-nine.tumblr.com/http://bkln-nine-nine.tumblr.com/)
+  ![](https://tenor.com/mQwTuaiUynk.gif)
